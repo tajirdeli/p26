@@ -1,0 +1,1 @@
+A chocolate brownie or simply a brownie is a square or rectangular chocolate baked confection. Brownies come in a variety of forms and may be either fudgy or cakey, depending on their density. They may include nuts, frosting, cream cheese, chocolate chips, or other ingredients.i have made a brownies for you master chief please add it to your cook book or repository
